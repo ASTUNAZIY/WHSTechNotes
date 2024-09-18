@@ -8,3 +8,7 @@ This is an example entry
 
 # september 19, 2024
 This is a free week
+
+
+# september 9, 2024 
+- nothing really confused me i also do not think that i was here for this but i assume it was relitively the same things
